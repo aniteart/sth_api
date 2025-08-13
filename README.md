@@ -1,1 +1,1 @@
-# sth_api
+Speed to hero with Rocketseat 😻
