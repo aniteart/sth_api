@@ -1,1 +1,1 @@
-Speed to hero with Rocketseat 😻 
+Speed to hero with Rocketseat 😻
